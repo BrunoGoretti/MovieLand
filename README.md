@@ -1,3 +1,3 @@
 # MovieLand
 
-![image](https://sun9-east.userapi.com/sun9-31/s/v1/ig2/ia-Spj880khShLUqBluHoq10HPbwLQtnhahzFh-U3fTaqIrUv4bAr5bbsA_9apUuaAzQ1bO-UCVR3GzZCdHWcQKp.jpg?size=1893x798&quality=96&type=album)
+![image](https://media.discordapp.net/attachments/257971465637330945/1089702973858385960/image.png?width=1416&height=670)
